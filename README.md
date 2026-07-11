@@ -6,7 +6,7 @@
 📍 Remote, Nigeria  
 📧 happinessikhuoria1@gmail.com  
 📱 +234 708 931 4135  
-🔗 [LinkedIn](https://www.linkedin.com/in/your-profile/) | [GitHub](https://github.com/happinessikhuoria1-afk)
+🔗 [LinkedIn]((https://www.linkedin.com/in/happiness-ikhuoria-7060a4275)) | [GitHub](https://github.com/happinessikhuoria1-afk)
 
 ---
 
